@@ -1,0 +1,1 @@
+# safenotscammed.github.io
